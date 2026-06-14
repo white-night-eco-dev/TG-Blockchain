@@ -1,1 +1,2 @@
-bruce, leave msg here
+TG: @lucas96012
+Dis: guerramateo
